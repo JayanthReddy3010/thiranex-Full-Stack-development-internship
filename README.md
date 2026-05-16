@@ -19,7 +19,7 @@ The internship focuses on developing real-world applications and strengthening b
 
 ## 🔗 LinkedIn Offer Letter Post
 
-Post URL:[ [https://www.linkedin.com/posts/your-linkedin-post-url-here](https://www.linkedin.com/posts/jayanth-reddy-034429330_excited-to-begin-my-web-development-internship-ugcPost-7461312216194134016-SkTL?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFNbTugB-uhFlgMl5DjYtjgrnPWOcpDff7Q)
+Post URL:[ (https://www.linkedin.com/posts/jayanth-reddy-034429330_excited-to-begin-my-web-development-internship-ugcPost-7461312216194134016-SkTL?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFNbTugB-uhFlgMl5DjYtjgrnPWOcpDff7Q)]
 ]
 ---
 ## 📬 Connect With Me
